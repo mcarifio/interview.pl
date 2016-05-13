@@ -44,6 +44,7 @@ Here's what I'm looking for:
 * Can I trust you tell me bad news when the news is bad?
 
 I prefer veterans to new graduates, but hard work knows no age. A willingness to
+learn trumps everything else.
 
 
 
